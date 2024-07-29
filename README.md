@@ -1,16 +1,22 @@
-## Hi there 👋
+## Hi there 💙💙
+prazer Meu nome é **Francisco**
 
-<!--
-**silvervw/silvervw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+estou aqui pra me apresentar 
 
-Here are some ideas to get you started:
+sou muito hiperativo e falo muito
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+mais as vezes tenho a mania de ficar quieto 
+
+do nada, mais isso e raro
+
+gosto de editar videos e jogar bola e volei
+
+e gosta tambem de jogar GAME 
+
+eu ainda não sei o que eu quero ser de profissão
+
+mais pretando ter uma vida normal e tranquila 
+
+mais isso vai ser um pouco dificil kskskssk
+ 
+ ESSE SOU EU##alurastartestudante
